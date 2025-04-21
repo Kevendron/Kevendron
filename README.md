@@ -58,7 +58,7 @@ He / Him
 
 ### ⚡ Fun Fact
 I love turning hackathon ideas into fully functional products — with APIs, dashboards, and end-to-end automation — even before the weekend ends! ⚙️  
-When I’m not coding, I’m probably building calisthenics routines or tweaking productivity systems.
+When I’m not coding, I’m probably doing gym  routines and doing art .
 
 ---
 
